@@ -1,0 +1,4 @@
+- Kerniski
+- 👀 Estudo Pensamento Computaional.
+- 🌱 Estou aprendendo configurações.
+- 📫 
